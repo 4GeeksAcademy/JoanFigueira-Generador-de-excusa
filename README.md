@@ -1,0 +1,1 @@
+# JoanFigueira-Generador-de-excusa
